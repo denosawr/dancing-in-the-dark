@@ -1,6 +1,7 @@
-# Dancing in the Dark
+Dancing in the Dark
 
-## Chapter 1
+Chapter 1
+
 The fire splutters as I fan my hand over the coals with an audible crack, its last breath.
 
 A small voice behind me desperately cries, "No, the story wasn't finished!" as I am snapped out of my trance-like storytelling state by the sudden onset of black.
@@ -11,7 +12,7 @@ I've heard stories about the city children - everyone here in Newbor has. I've h
 
 "Please, don't go. I wanna hear another story," Meya pleads, pulling on my arm as if she never wants to let me go. Outwardly, I sigh, while little My lets out an exuberant sigh of relief, relaxing her iron grip on my arm. Slowly, I turn towards her, looking at her sternly in the dim moonlight.
 
-"Fine, but _one more_ story. A short one, too."
+"Fine, but one more story. A short one, too."
 
 She contently slumps down in her bed as I jump under the warm covers, and prepare my richest storytelling voice.
 
@@ -19,7 +20,7 @@ She contently slumps down in her bed as I jump under the warm covers, and prepar
 
 Meya shudders with something - either fear of excitement, I can't tell which - before settling back down, to let me finish.
 
-"You see, long ago there was an Alchemist in Newbor, a man who could summon up mythical creatures with just the power of his mind and a few spells. One day the Alchemist got bored with conjuring toads and frogs to entertain the town" - there was a stifle of a laugh from My - "and decided to test his power, to see just what he _could_ summon. So, he flipped open his book, and saw that the previous owner of the book had slipped in a piece of paper with a spell on it."
+"You see, long ago there was an Alchemist in Newbor, a man who could summon up mythical creatures with just the power of his mind and a few spells. One day the Alchemist got bored with conjuring toads and frogs to entertain the town" - there was a stifle of a laugh from My - "and decided to test his power, to see just what he could summon. So, he flipped open his book, and saw that the previous owner of the book had slipped in a piece of paper with a spell on it."
 
 "Now, being the curious fellow he was this Alchemist was excited to make sense of this spell, so he tried to decipher it to see what it did. And yet, nobody knew exactly what the incantations were, and what they would do. The potions were completely new mixtures, seemingly frivolous but upon closer look rather complex and ingenious. The ingredients were exotic and mysteriously new. The brewing methods were nothing short of difficult. And the Alchemist, sensing a challenge in the spell, decided to undertake it as his new project."
 
@@ -29,6 +30,28 @@ Meya shudders with something - either fear of excitement, I can't tell which - b
 
 "Yet there was a problem. Uduootu had been forced to use a weak, humane spell, which severely limited his power and range to only a fraction of his full capacity, and therefore was not only bound to Newbor, but also incapable of hurting any adults in the town."
 
-"So, Uduootu fed his thirst for blood with the poor children of the town. It wasn't long before Uduootu had snatched the Newbor children from their mothers and sentenced them to eternal hell within Cthulhu, the worst form of hell."
+"So, Uduootu fed his thirst for blood with the poor children of the town. It wasn't long before Uduootu had snatched the Newbor children from their mothers and sentenced them... to eternal hell within Cthulhu, the worst form of hell!"
 
-Meya gasps, a piercing shriek which stands out against my sonorous reading voice in the silence. 
+My voice raises in both pitch and volume to a shout, filling the room and the nearby fields with a reverent echo which rings for many seconds. Meya gasps, a piercing shriek which stands out against the echo in the silence.
+
+"But the Alchemist was a very talented wizard, capable of great feats of magic, and it was this skill he tested as he tried to return the children to their mournful parents. It took him weeks, months even, but eventually the Alchemist was able to reverse the spell and trade the children for Uduootu, returning the demon to his own realm and also returning the children back to the Human realm."
+
+"Unfortunately, no matter how powerful, the Alchemist was no match for Uduootu. He only held one trump card, which was that to conjure his magic in Roshan the demon would have to have a strong link to the land - something he didn't have."
+
+Meya's relief was palpable as she exhaled deeply, as if she had been holding her breath, and breathed out a barely-audible "phew."
+
+"Except all great men make mistakes and this was true of the Alchemist."
+
+A sheen of sweat broke out on My's forehead, which I wiped away with my bare hand.
+
+"When Uduootu was summonned, he was personified in a demon body, as all demons are upon entering a foreign realm. And, following the orders of the god Shasaan, the Alchemist made sure to give Uduootu a respectful burial, in the Newbor courtyard, just like he would have given any deceased man or woman."
+
+"And this was Uduootu's link to the mortal realm. Our realm. As his body decomposed, traces of his powers merged with the earth and the air, and centuries after the passing of the Alchemist, Uduootu was able to regain some of his power. So, to continue terrorising the villagers of Newbor, he controlled the air, in gusts, to blow on the villagers and remind them of his constant gaze."
+
+"He controlled the earth, making earthquakes and crop famine,"
+
+"He controlled the water, creating storms and tempests."
+
+"Legend has it that one day, another Alchemist will arise. One so powerful they will be able to challenge Uduootu himself. One so powerful, that they will be able to crush the remains of Uduootu's power surrounding Newcom, and bring an end to the misery he has caused."
+
+By this time, Meya had long fallen asleep.
