@@ -1,3 +1,6 @@
+# Dancing in the Dark
+
+# Chapter 1
 The fire splutters as I fan my hand over the coals with an audible crack, its last breath.
 
 A small voice behind me desperately cries, "No, the story wasn't finished!" as I am snapped out of my trance-like storytelling state by the sudden onset of black.
