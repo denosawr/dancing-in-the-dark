@@ -107,5 +107,5 @@ _Who is he?_
 
 There are no strangers in Newbor.
 
-But there are no yellow eyes in Newbor either.
+But nor are there any yellow eyes.
 
