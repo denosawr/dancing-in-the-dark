@@ -1,6 +1,7 @@
 # Dancing in the Dark
 
 ## Chapter 1
+
 The fire splutters as I fan my hand over the coals with an audible crack, its last breath.
 
 A small voice behind me desperately cries, "No, the story wasn't finished!" as I am snapped out of my trance-like storytelling state by the sudden onset of black.
@@ -43,7 +44,7 @@ Meya's relief was palpable as she exhaled deeply, as if she had been holding her
 
 A sheen of sweat broke out on My's forehead, which I wiped away with my bare hand.
 
-"When Uduootu was summonned, he was personified in a demon body, as all demons are upon entering a foreign realm. And, following the orders of the god Shasaan, the Alchemist made sure to give Uduootu a respectful burial, in the Newbor courtyard, just like he would have given any deceased man or woman."
+"When Uduootu was summoned, he was personified in a demon body, as all demons are upon entering a foreign realm. And, following the orders of god Shatan, the Alchemist made sure to give Uduootu a respectful burial, in the Newbor courtyard, just like he would have given any deceased man or woman."
 
 "And this was Uduootu's link to the mortal realm. _Our_ realm. As his body decomposed, traces of his powers merged with the earth and the air, and centuries after the passing of the Alchemist, Uduootu was able to regain some of his power. So, to continue terrorising the villagers of Newbor, he controlled the air, in gusts, to blow on the villagers and remind them of his constant gaze."
 
@@ -51,6 +52,60 @@ A sheen of sweat broke out on My's forehead, which I wiped away with my bare han
 
 "He controlled the water, creating storms and tempests."
 
-"Legend has it that one day, another Alchemist will arise. One so powerful they will be able to challenge Uduootu himself. One so powerful, that they will be able to crush the remains of Uduootu's power surrounding Newcom, and bring an end to the misery he has caused."
+"Legend has it that one day, another Alchemist will arise. One so powerful they will be able to challenge Uduootu himself. One so powerful, that they will be able to crush the remains of Uduootu's power surrounding Newbor, and bring an end to the misery he has caused."
 
 By this time, Meya had long fallen asleep.
+
+
+
+## Chapter 2
+
+The sound of the shutters slamming shut wakes me up with a sudden jolt.
+
+Meya is already awake, happily sifting through a storybook, murmuring to herself. She notices me sitting up and groaning, and puts down her book to wave at me and say "Good morning."
+
+I slowly get up, trying to make as little sound as possible so I don't disturb Mum or the neighbors, and reach out my hands to close the shutters before -
+Hmm. That's weird.
+There is a boy standing in the field, a complete stranger, surveying my humble town.
+But before I can alert the Council of Elders the boy's eyes lock onto mine, and open wide in surprise. A blink later, he is gone, disappeared from the field, from the horizon. Not even a trail remains, or a dent in the long grass, and I am left wondering: "Did I imagine that?"
+
+For the next five minutes I stare at that field, hypnotized by it, waiting to see the boy again. Either he isn't foolish enough to return, or I was daydreaming again.
+
+Meya notices my unfocused stare and comes over to see what I'm looking at, sticking her head out of the window so that the wind blows on her hair. "There's nothing here! Stop daydreaming and get a move on, lazy. I want breakfast!"
+
+I continue looking out the window for another minute, then warily let my eyes drift from the windowsill.
+
+***
+
+The sizzle of eggs in the pan seems to invigorate Meya, and throughout the rest of breakfast she rambled on continuously about spontaneous topics, leaving me no time to ponder the appearance of the stranger. It took the arrival of my mum and a stern "Meya, be quiet" to finally convince her to give me some time.
+
+Who was the stranger? Was he real or a figment of my lonely imagination? And if he was real, why was he here?
+
+Of course, this wasn't reason to be concerned yet. No, the Council wouldn't be hearing about the new stranger in Newbor until I was one hundred percent sure he was real.
+
+***
+
+The rest of the day was nothing out of the ordinary. Most of it was spent under Mr Harvord's care, which meant the usual - sitting around in a classroom all day, doing nothing much. Mr Harvord was a stern old man who very much valued 'education' and prided himself on being able to teach it as well as he did, even if nobody ever listened. After all, we were never going to need to know algebra or how to spell 'pronunciation' or how to say 'hi, how are you' in French here in Newbor, full stop. Most of his classes were him up at the blackboard scribbling some formula or another while the ten or so older kids sat as far away as possible, messing around, killing time, and thinking of mischievous things to annoy the old timer.
+
+After school, nothing much had changed either. Meya was, as usual, playing with the other kids in the field, laughing and running round like there wasn't a care in the world. It was always easy to find her, with their voices being carried across the town by the wind, magnified for all of us to hear. The hard part was usually getting her to leave, and her attitude towards me today was nothing out of the ordinary; it involved fingers in ears, pretend ignorance, and a lot of running away. The other teens had the same problem with their siblings, too. And every time the kids dragged out their games until the Sun was out of the horizon, and the orange tint of the sky had faded to a rich, beautiful black -
+
+_What was that?_
+
+A shadow darts across the field, leaving behind the rustle of grass as it moves.
+
+_Could it be?_
+
+The shadow stops, turns, and surveys the town, its pupils glowing a magnificent yellow. They slowly move as he tracks his head, looking at the village, before they -
+
+_Was he looking at me?_
+
+His eyes, and their beautiful gold pupils, lock onto mine. Again, they open wide in surprise, but now there's another emotion there. Recognition.
+
+The blink of an eye later, the gold colour of his pupils can only be seen in the millions of stars hanging above me.
+
+_Who is he?_
+
+There are no strangers in Newbor.
+
+But there are no yellow eyes in Newbor either.
+
