@@ -87,7 +87,7 @@ Of course, this wasn't reason to be concerned yet. No, the Council wouldn't be h
 
 The rest of the day was nothing out of the ordinary. Most of it was spent under Mr Harvord's care, which meant the usual - sitting around in a classroom all day, doing nothing much. Mr Harvord was a stern old man who very much valued 'education' and prided himself on being able to teach it as well as he did, even if nobody ever listened. After all, we were never going to need to know algebra or how to spell 'pronunciation' or how to say 'hi, how are you' in French here in Newbor, full stop. Most of his classes were him up at the blackboard scribbling some formula or another while the ten or so older kids sat as far away as possible, messing around, killing time, and thinking of mischievous things to annoy the old timer.
 
-After school, nothing much had changed either. Meya was, as usual, playing with the other kids in the field, laughing and running round like there wasn't a care in the world. It was always easy to find her, with their voices being carried across the town by the wind, magnified for all of us to hear. The hard part was usually getting her to leave, and her attitude towards me today was nothing out of the ordinary; it involved fingers in ears, pretend ignorance, and a lot of running away. The other teens had the same problem with their siblings, too. And every time the kids dragged out their games until the Sun was out of the horizon, and the orange tint of the sky had faded to a rich, beautiful black -
+After school, nothing much had changed either. Meya was, as usual, playing with the other kids in the field, laughing and running round like there wasn't a care in the world. It was always easy to find My, with the kids' voices being carried across the town by the wind, magnified for all of us to hear. The hard part was usually getting her to leave, and her attitude towards me today was nothing out of the ordinary; it involved fingers in ears, pretend ignorance, and a lot of running away. The other teens had the same problem with their siblings, too. And every time the kids dragged out their games until the Sun was out of the horizon, and the orange tint of the sky had faded to a rich, beautiful black -
 
 _What was that?_
 
@@ -109,3 +109,46 @@ There are no strangers in Newbor.
 
 But nor are there any yellow eyes.
 
+
+
+## Chapter 3
+
+That night, we didn't go down to the indent in the cliff with the campfire which cracked and spluttered.
+
+That night, I was not in the mood for a story.
+
+That night, I sat planted in front of the window, 'stargazing', hoping for the boy with the gold eyes to reappear. He didn't look dangerous, or harmful. Instead, he looked lost. Like a boy searching for a home.
+
+Maybe that's why I didn't tell the Council.
+
+Or maybe it was because this boy with the gold eyes fascinated me, with his mysterious and stealthy ways. After all, he wasn't going to hurt anyone... was he?
+
+_Was he?_
+
+***
+
+That was the night when everything started going wrong.
+
+The night when a child disappeared, snatched from their beds quietly and bloodlessly.
+
+The night which would remain as one of the most horrifying and frightening nights to have ever occurred in the peaceful, safe, uneventful town of Newbor, a town with no strangers.
+
+***
+
+That morning I woke to a barrage of noise coming from outside the window. The usual quiet fields and paths of Newbor were, instead, filled with shouting and fast, panicked discussion. As I tried to lie in my quilt, blocking out the noise, I couldn't help overhearing the conversation outside.
+
+"Disappeared... missing... no trace... right from her house... poor girl... name is Amber..."
+
+I jolt up with such startling pace that I bang my head, and quickly run to my window looking for traces of the boy. A million thoughts race through my head. _The disappearance of the girl and the appearance of the boy with gold eyes must be a coincidence. Otherwise how could anything happen? Who could have kidnapped poor Amber? What has the boy done to her? Why didn't I tell anybody?_
+
+On my way to the kitchen I run into Meya, whose eyes are wide, mournful, and full of fear. I half-heartedly reassure her that everything will be alright, still feeling uneasy and a little queasy, but she seems to accept what I say and goes back to her room looking somewhat less pale.
+
+_The goddamn boy. Why did I think that he could have been up to anything good?_
+
+Mum, carrying the untouched remains of My's breakfast, is in the kitchen, trying to tidy up. I sit down and grab a plate, realizing that today she decided to fry the bacon, and try to gulf some down. She tries to encourage me to go to 'school' with old Mr Harvord but only seems to be doing so to half-reassure herself, and doesn't protest when I politely refuse, either out of tiredness or because she is preoccupied with finding lil' Amber.
+
+You see, as one of the most intelligent women in the village the council had appointed my mum with the role of "Consul", ironic as she had lived her whole life in Newbor. Her job was to lead investigations whenever anything went awry, which usually consisted of quizzing the local children until _someone_ owned up to a robbery. But today, even _her_ usual cool and calm demeanor had given way to face full of panic, fear, and worry.
+
+Outside the house was no better. The Council of Elders were deep in discussion with Mr and Mrs Connor, no doubt to try to reassure them. Lovely people, from what I know - Mr Connor was an engineer and was in charge of making sure the houses built in the town were safe as well as a generous donator of lollies to the children, while Mrs Connor was the local scribe who wrote all the important documents.
+
+The adults were also occupied talking to each other, their voices weaving over and under each other to form a chorus of sound which hit me like a wall. Occasionally I caught snippets of conversation - "She must be hiding... Who could have done it... I'm sure it's just a prank... Amber, Amber, where are you?"
