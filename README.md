@@ -1,4 +1,4 @@
-# nanowrimo17
+# story :)
 dancing in the dark - a story
 
 > Any visitor to the town of Newbor, home to fifty residents, will describe it using the same select words.
