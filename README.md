@@ -6,5 +6,5 @@ dancing in the dark - a story
 > Safe. Peaceful. Calm.
 > So when the disappearance of a young girl coincides with the sudden appearance of an unknown boy in town, all suspicion instantly falls on the boy.
 > 
-> But Leila's gut tells her that the boy is innocent.
+> But Saphira's gut tells her that the boy is innocent.
 > And her gut instincts are usually right.
