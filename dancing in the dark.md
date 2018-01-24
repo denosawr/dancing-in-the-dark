@@ -143,7 +143,7 @@ I jolt up with such startling pace that I bang my head, and quickly run to my wi
 
 On my way to the kitchen I run into Meya, whose eyes are wide, mournful, and full of fear. I half-heartedly reassure her that everything will be alright, still feeling uneasy and a little queasy, but she seems to accept what I say and goes back to her room looking somewhat less pale.
 
-_The goddamn boy. Why did I think that he could have been up to anything good?_
+_The goddamn boy. Why did you think that he could have been up to anything good?_
 
 Mum, carrying the untouched remains of My's breakfast, is in the kitchen, trying to tidy up. I sit down and grab a plate, realizing that today she decided to fry the bacon, and try to gulf some down. She tries to encourage me to go to 'school' with old Mr Harvord but only seems to be doing so to half-reassure herself, and doesn't protest when I politely refuse, either out of tiredness or because she is preoccupied with finding lil' Amber.
 
@@ -152,3 +152,77 @@ You see, as one of the most intelligent women in the village the council had app
 Outside the house was no better. The Council of Elders were deep in discussion with Mr and Mrs Connor, no doubt to try to reassure them. Lovely people, from what I know - Mr Connor was an engineer and was in charge of making sure the houses built in the town were safe as well as a generous donator of lollies to the children, while Mrs Connor was the local scribe who wrote all the important documents.
 
 The adults were also occupied talking to each other, their voices weaving over and under each other to form a chorus of sound which hit me like a wall. Occasionally I caught snippets of conversation - "She must be hiding... Who could have done it... I'm sure it's just a prank... Amber, Amber, where are you?"
+
+_God… where is he? We need to have a word. A stern one._
+
+## Chapter 4
+
+An hour.
+
+That's how long I'd been running, hunting the mysterious boy with the golden eyes.
+
+And yet he still was not anywhere to be seen.
+
+_Where could he have gone?_
+
+_The village is surrounded by miles and miles of flat, hill-less field… he either must have hiked very far or… disappeared. Into thin air._
+
+My subconscious seemed to be speaking to me. Making rational thought for me. Stress does that to people, I guess.
+
+_Come on, Saph. He couldn't have just vanished into thin air._
+
+_Or could he?_
+
+---
+
+## Chapter 5
+
+That afternoon there was no playing in the fields. No sitting and watching the beautiful sunset fade the sky to a red. And that afternoon, there were no golden eyes and mysterious boys in the field.
+
+_He's here, somewhere. You just gotta find him._
+
+Of course. I've got to find him.
+
+_And punish him._
+
+And punish him, for kidnapping poor Amber.
+
+_God knows what's being done to her._
+
+God knows. We can only hope for the -
+
+_Look!_
+
+Look? At what?
+
+_LOOK!_
+
+There's nothing - just the usual moonlight and gold ey-
+
+Gold eyes?
+
+_It's him! Get him!_
+
+Quickly, I make a mental map of where the boy is and sprint down the stairs, past terrified Mother, and out the door.
+
+_Almost there!_
+
+Yes! Almost there, subconscious! Look! That's where he was sitting… except there's nobody there...
+
+Scouting yields no results of his location. Apart from the indent in the wheat where he has been gazing at me, there is no mark of impact or damage - just untouched wheat.
+
+My subconscious snarls as effectively as a voice in your head can snarl, and almost spits.
+
+_Stupid boy! I knew that he would do…_
+
+Do what?
+
+The silence from my subconscious folds over me and quickly I feel my isolation. I'm in field, half a mile from home, completely alone, with a stalker in the vicinity. 
+
+"Pssst!" A voice rings out in the darkness, not mine, piercing my ears. "Is that voice gone?"
+
+Terrified, I reach out to hold something - and feel my hand clasping warm flesh.
+
+A rose blush emerges on my face, thankfully hidden by the darkness of the night, as a pair of golden eyes look down into mine.
+
+I manage to shriek out a "get away from me!" before my tiredness finally closes my eyelids and bades me goodnight.
